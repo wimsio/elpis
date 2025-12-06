@@ -4,7 +4,7 @@
 
 ## Vision and Mission
 
-### Vision: No Food Waste, No Family Abandoned
+### Vision: No Food Waste, No Family Abandoned and Giving Hope to Disaster Victims
 
 The vision of Global Relief ELPIS is a world in which no edible food is wasted and no family is left alone when disaster strikes. In this world, surplus food flows naturally from those who have “too much” to those who have “too little,” and digital infrastructures ensure that any person affected by shock—whether a flood, war, fire or economic collapse—can access stable, transparent support quickly and with dignity.
 
